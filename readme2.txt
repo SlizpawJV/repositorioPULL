@@ -1,0 +1,1 @@
+familia foi desmontada
